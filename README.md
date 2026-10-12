@@ -1,11 +1,11 @@
 <p align="center"> " 𝖳𝗁𝗂𝗌 𝗂𝗌 𝖿𝗈𝗋 𝖬𝗂𝖼𝗁𝖾𝗅𝗅𝖾 . " </p>
 
-![IMG 8725](https://i.postimg.cc/SsqdhFXH/IMG-8725.png)
+![IMG 8725](https://files.catbox.moe/vvipmh.png)
 
 <p align="center"> " 𝖢𝗈𝗆𝖾 𝗁𝗈𝗆𝖾, 𝗈𝗄𝖺𝗒 ? 𝖩𝗎𝗌𝗍 𝖼𝗈𝗆𝖾 𝗁𝗈𝗆𝖾 . " </p>
 
 
-![IMG 6712](https://i.postimg.cc/mg2LCCw4/IMG-8238.png)
+![IMG 6712](https://files.catbox.moe/f3oemv.png)
 
 <p align="center">𝗁𝗂 𝗆𝗒 𝗇𝖺𝗆𝖾 𝗂𝗌 𝖼𝖺𝖽𝖾𝗇 𝗈𝗋 𝖺𝗎𝖽𝗋𝖾 𝗈𝗋 𝗉𝖺𝗇𝖽𝖺𝗌 𝗂𝖽𝗄 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝗈𝗌𝖾. 𝖨 𝗀𝗈 𝖻𝗒 𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌 𝖺𝗇𝖽 𝖨’𝗆 𝖺 𝗌𝗎𝗌𝗉𝖾𝖼𝗍𝖾𝖽 𝗌𝗒𝗌𝗍𝖾𝗆. 𝖨’𝗆 16 𝖺𝗌 𝗐𝖾𝗅𝗅 :𝖯</p>
 <p align="center">𝖸𝗈𝗎 𝖼𝖺𝗇 𝖺𝖼𝖼𝖾𝗌𝗌 𝗆𝗒 𝖽𝗇𝗂 𝗅𝗂𝗌𝗍: https://piperdarling.carrd.co.</p>
